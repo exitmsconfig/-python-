@@ -331,10 +331,6 @@ Hope You Guys Enjoy This Tool And As Always Have Nice Day
 
 Regard
 
-From : Yukinoshita 47 
-
-Team : Garuda Security Hacker
-
-Email : yukinoshita47@gmail.com
+Email : exitmsconfig@gmail.com
 
 Web : http://www.garudasecurityhacker.org
